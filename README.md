@@ -1,4 +1,9 @@
 ### Hi there 👋
+## 👨‍💻 Front end developer
+## 👨‍🎓 Posts and Telecommunications Institute of Technology (PTIT)
+## 👱‍♂️ 21 years old 
+## 🏃‍♂️ 🎤singing, 🎮game, 🎱bi-a, 🏀volleyball,  👧beholding beautiful girls :) 
+
 
 <!--
 **phuoctai12t/phuoctai12t** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
