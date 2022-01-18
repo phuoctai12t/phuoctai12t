@@ -1,7 +1,7 @@
 ### Hi there 👋
 ## 👨‍💻 Front end
 ## 👨‍🎓 Posts and Telecommunications Institute of Technology (PTIT)
-## 👱‍♂️ 21 years old 
+## 👱‍♂️ 22 years old 
 ## 🏃‍♂️ 🎤singing, 🎮game, 🎱bi-a, 🏀volleyball
 
 
