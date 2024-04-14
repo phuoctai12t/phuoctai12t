@@ -1,7 +1,7 @@
 ### Hi there 👋
-## 👨‍💻 Front end
+## 👨‍💻 React Native Developer
 ## 👨‍🎓 Posts and Telecommunications Institute of Technology (PTIT)
-## 👱‍♂️ 22 years old 
+## 👱‍♂️ 24 years old 
 ## 🏃‍♂️ 🎤singing, 🎮game, 🎱bi-a, 🏀volleyball
 
 
